@@ -6,3 +6,4 @@
 -  ## **_Email: rafaellllllborges23@gmail.com_** 📫
    ## **_OU_**
 - ## **_Instagram: z_xrafax_z_** 📷                      
+![](https://media1.tenor.com/m/CrkGz9RzrhsAAAAC/ichigo.gif)
